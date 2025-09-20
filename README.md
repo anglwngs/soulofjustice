@@ -10,10 +10,9 @@
 
 
                                                 "no risk, no reward. NO PAIN, NO GAIN!"
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤWhen your HP drops to 0, you lose!!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" When your HP drops to 0, you lose!! "ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="340" height="425" alt="image" src="https://github.com/user-attachments/assets/8f5c8f37-7fc7-4f11-97f4-577a0c7bb90f" />
-ㅤㅤㅤㅤㅤㅤㅤfeel free to chat w me anytime! i may not respond tho cause im usually occupied w smth but don't ever hesitate!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(also if you will NAWT catch me in the aa area mainly cause it's hard to find and i don't have the patience to remember where it is LOL.) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfeel free to chat w me anytime! i may not respond tho cause im usually occupied w smth but don't ever hesitate! 
 
 
 # read  carrd 4 more info!   .ᐟ ₊˚⊹
