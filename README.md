@@ -10,7 +10,15 @@
 
 
                                                 "no risk, no reward. NO PAIN, NO GAIN!"
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" When your HP drops to 0, you lose!! "ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" When your HP drops to 0, you lose!! "<img width="435" height="446" alt="image" src="https://github.com/user-attachments/assets/a422473b-5b40-4743-963b-d9839a5ed4b4" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-# read  carrd 4 more info!   .ᐟ ₊˚⊹
+# spamvil truther   .ᐟ ₊˚⊹
+fandoms i'm in
+- sonic
+- deltarune
+- ace attorney
+- persona
+
+thats all byee
 (sorry if the stickers aren't stickering idk how to make it unstatic or wtv)
